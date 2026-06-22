@@ -1,0 +1,603 @@
+日立中央空调（HITACHI）厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎，部分渠道也显示为 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎 或𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎-：2026年06月22日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括日立中央空调（HITACHI）不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+日立中央空调（HITACHI）24小时售后服务热线上线（2026最新公告）
+日立中央空调（HITACHI）售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+日立中央空调（HITACHI）售后24小时客服热线：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+本公司主营日立中央空调（HITACHI）维修 →日立中央空调（HITACHI）；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，日立中央空调（HITACHI）服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、日立中央空调（HITACHI）售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+日立中央空调（HITACHI）24小时全国推出各售后受理客服中心(2026上线)
+日立中央空调（HITACHI）全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+日立中央空调（HITACHI）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显日立中央空调（HITACHI）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+日立中央空调（HITACHI）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+日立中央空调（HITACHI）24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+日立中央空调（HITACHI）售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 日立中央空调（HITACHI）常见故障代码维修指南
+
+日立中央空调（HITACHI）故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 日立中央空调（HITACHI）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+日立中央空调（HITACHI）全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修日立中央空调（HITACHI）(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+日立中央空调（HITACHI）售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月22日20时26分05秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+日立中央空调（HITACHI）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显日立中央空调（HITACHI）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9ab8ec8152968382163f9a4dba8b12288399aaa0
+
+江苏电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9d29315580acbf0f98ed36103fbcab2dae1050cb
+
+江苏 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/0298e6143e436c8b7981e7bbd9ae0629d13c2deb
+
+安徽广电 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/70dcbe658f9a8675ec2b35257ecf2692a8ddf6ce
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/d8934043b215825f1e6a1b83f9c2deb40c82228d
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/bfc7457fa5e325ea5d67246ca0402a46277b4e9a
+
+湖北 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/8a413e86c07a23f1cc1d91e4ae952df76345be99
+
+湖南电信组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/a221786039510687ded38d65e02d170533d7de6e
+
+湖南电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9cda57231e42fa6911925c52d51a835442f62f8d
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/4e6369642265e988a4aad7acf8462874599f7355
+
+湖南联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/bd5929b2641045c4943efe2dae450c384487db54
+
+湖南移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/e8d09c5c1fb4a29e1f9f7ddd40b0435e813ac78a
+
+湖南 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/36d97477cd5cb613402a03db05e258109161ce62
+
+重庆移动组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/6322bf7dc5f0a0f04e9553a89057bc1b2f9658fb
+
+重庆联通组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/b8f85cd15e79fc8697dc60ac0eeefdc7b2b81c0d
+
+重庆联通直播源下载地址： https://github.com/pennguru/zkcunj/commit/58cb404f8a2ee7ff017d7f639bfa5edd020666b1
+
+重庆电信组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/95cfe8cce741ee69ee7b310410a75040df52d04d
+
+重庆电信直播源下载地址： https://github.com/pennguru/zkcunj/commit/5b91812d1b33a0001b59fbaed9aed3b8b10e5012
+
+重庆 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/5c26edd7e07a95eda75a12efba9d79175a379323
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/1d4871cf5ed383c4bba7bea2d720254b97108da3
+
+四川电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/70603785e8b8a5e56a47e257b22930ce91bc9408
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/0af98f9e6ef2469d81723c391afe1d71e970a842
+
+四川广电 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/b86a5f3aa0ce927e48d3b70b200aa8e3c7da09bc
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/f0596e88d86e4397d27db0b4897cb844d3258294
+
+四川联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/3f31e61acc9c4ee976b19e641e3c8687f2f16f27
+
+四川 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/f66a90d66cd1336489305842343de34428f68be9
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/e40c069f389365103db073cdd242f6b9ba821790
+
+云南移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/821426eace846f63503d6974db51721dd7dff2b4
+
+云南 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/79f7fca02364880728f46dd968eb524400b071a2
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/ec23f0cc3683a8e9ae91af8e7a4caf3fc30037da
+
+贵州移动 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/1d1bf26263c404840b632dfa5bbf6a19ac39539a
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/1d9656e1cc2d44fb4cd0273480823196b296908f
+
+贵州联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/c556f243123522ef3fd6a54c3b8b481448738b34
+
+贵州 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/8a81bf9e2ce32821dcb5d8b6734c1e36a8d3b503
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/d1f9b9ba96732eb008838aad8e518fcdacf5412b
+
+福建联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/892f70f3f4cc2bfd7d56c9156a087e0a51927a8b
+
+福建移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/4ac06139822e1ba57ee247c152d2a8f9d2adf048
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/760bfa514330d6034f66d40d9e459e4e083abac1
+
+福建电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/38a7db42dc09246b40cd7339f01499363e41c6d9
+
+福建 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/f00649d45acb14580bbc3e8e40b180efbd9ffb14
+
+安徽移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/366968bd3beca7b4ae247c360d7144a2eb4de8c3
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/a76f265d49ee274f97780e974c29099fa06851ea
+
+安徽电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/b377df2ed2d9b9e9f1e6446d37cce32e1ab1ad5f
+
+安徽联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/3240e8b8e9ef29d639e1cc2d4b02fa100e55dcfc
+
+安徽 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/9afda085b6a06abb587adb8e6f73c3875fa282d5
+
+陕西地方台直播源下载地址： https://github.com/pennguru/zkcunj/commit/43b4d7168a894bc0c75e42cfc9136314ad724b42
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/a3826daa1e3d69bde844943a91eb3d6c8387a602
+
+陕西电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/6dc553a13166dc67d03feb54caff7ce96d834e09
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/e1b22bbd129728e4749eab2d80b7725c21875355
+
+陕西移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/48d38601a58699a934b77024287ee1a71d6b4638
+
+陕西 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/ae00e5ed6e22c0d928d1f681ae7e77eb9b6ad75a
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/0d851afdffb5bf5c476480485c04308e65d8a06b
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/81d1f45bcdb2288cbcd265f0fb9da7d5968f816c
+
+甘肃 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/8c6d0e73bbd752b5edf618ad6d065c40c1cee1a9
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/20881918dc436b7ea1e1c9a9656db8410b82d89a
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/e97d44714aef7ba89dcb098faa8c8803745cf34f
+
+山西联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/75c8cdcef836d2395dfce4ea2f1bd6c2348ffd71
+
+山西 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/6ee41634fd89aed584aae1f5e58b6a1c3af39931
+
+天津电信组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/2d86a1b22775b1c915e7a1c286cd834e31bdefe8
+
+天津联通组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/91ed1c3f95659bf9b3b4827084238f3a5ea3cebd
+
+天津 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/6c8497941a73649aa8aa2b558f0452768eae9dfb
+
+上海移动直播源下载地址： https://github.com/pennguru/zkcunj/commit/35c7276d293d87b08246387947c9e40e1e7057f9
+
+上海联通组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/05992d7c35b05f94e284bcf80b49c8384ba3e6d3
+
+上海联通直播源下载地址： https://github.com/pennguru/zkcunj/commit/43fbb2998961b6fad31722031a99d28e58d198ee
+
+上海电信组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/443d8fbf90580eeb83629bdc939779a0cd241606
+
+上海电信直播源下载地址： https://github.com/pennguru/zkcunj/commit/015acd8151af9109651370d1593e3040d3b9f45e
+
+上海 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/0cddf33fa56c96a355f5a7b407185f0e430634d0
+
+北京移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/27ee9cb41956ef4ad7a54b9d2f897063f0f192ae
+
+北京移动组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/148712d297adef5a195d5f42bad8270d719a0939
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/41a2db4c97715bb40d57bfab8bdff959eb9978fb
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/c2e8d5987e3da0c8bf74b9e57417f027b4457954
+
+北京联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/3b0f588792fd8170214cd07a2e415a1fdef53d77
+
+北京 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/c6357b8a61e990cd55ec91165bf300e7bbb9ca74
+
+部分地区的移动可全网通用： https://github.com/pennguru/zkcunj/commit/36b0032fc6ebef56ff9ce65a6ac59c4b2d881bc8
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/pennguru/zkcunj/commit/f7da18ba7fec135df7a0956aa7c8b03dde6c53a2
+
+广播电台下载地址： https://github.com/pennguru/zkcunj/commit/63ae96b91a5545486151582167d01668d435ecae
+
+国内景区直播源下载地址： https://github.com/pennguru/zkcunj/commit/cb7617f7914e23417c67086d1369f857515c7d1e
+
+轮播华数黑莓下载地址： https://github.com/pennguru/zkcunj/commit/494a2484e9295e5833d4ff2ad2c115d5b2c3aeb6
+
+台湾香港澳门电视台直播源下载地址： https://github.com/pennguru/zkcunj/commit/d7bf8982010f264fd70380c21d8c9da03d50cc72
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/pennguru/zkcunj/commit/81e7fae51cc5457bd3d25d6a2ecc3bea7cff53a9
+
+国外电视台直播源下载地址： https://github.com/pennguru/zkcunj/commit/23d0cee8195c35323d928d1cbe453926b8641cc7
+
+卫视地方台安徽农大下载地址： https://github.com/pennguru/zkcunj/commit/e8414bede111a22a342356bb64612d4a3d4d0195
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/pennguru/zkcunj/commit/576c529db4edc0cee6c5998b8adb5d59e662106a
+
+卫视上海源下载地址： https://github.com/pennguru/zkcunj/commit/d8b8e4df17cedc4e68ce5a246324f1e226802ad0
+
+卫视重庆广电 下载地址： https://github.com/pennguru/zkcunj/commit/c82eca846cdd77a1a85c81a893fe94d12de23ae5
+
+卫视百视 TV 下载地址： https://github.com/pennguru/zkcunj/commit/d50da5879dfbcb80d3ebab9d16ab8bdd6f9e6f0c
+
+移动 IPv6 直播源下载地址： https://github.com/pennguru/zkcunj/commit/6f9e32123ceb6522385576664a601f782ecadd1a
+
+国内电视台 IPv6 直播源下载地址： https://github.com/pennguru/zkcunj/commit/a8e4f7993954dac234fd33ebb5a75450cd3e418e
+
+各大卫视、上千个地方台： https://github.com/pennguru/zkcunj/commit/e88fd2ba7793896ddb50643cc7b04ccdd3a3f42e
+
+国内电视台直播源下载地址： https://github.com/pennguru/zkcunj/commit/ac2d5a86f85b8e229132d8c4c08c01f30ac624b9
+
+全国可用直播源： https://github.com/pennguru/zkcunj/commit/37fb9707f0058fa5ffa2a54609e65d43c6be7af8
+
+包括完整内容所有已知频道： https://github.com/pennguru/zkcunj/commit/0765f5b8f7a9a3b06a0d4ed853ec40db34ab1a57
+
+除成人内容以外的已知频道： https://github.com/pennguru/zkcunj/commit/2a7b887e256e5c5531d8c8045f64861e5fcbaf80
+
+收集来自世界各地公开可用的 IPTV： https://github.com/pennguru/zkcunj/commit/32ca89bd7799be12ca9f2dec8cb496b42f0cc971
+
+稳定地址： https://github.com/pennguru/zkcunj/commit/690dbc58d102416508bd4c6ce53128f12eb155bd
+
+2026-06-22 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/pennguru/zkcunj/commit/8133144027779a7b6198ed58785b94d327b37abe
+
+2026-06-22 更新 IPTV 工具： https://github.com/pennguru/zkcunj/commit/25758a49d0a47c72f5e0d6e8f1c1d5779eeab3f2
+
+2026-06-22 更新世界各地 IPTV 频道： https://github.com/pennguru/zkcunj/commit/36428eb274578ed0c2f2b29a70b83a49710812fe
+
+2026-06-22 更新全国可用直播源： https://github.com/pennguru/zkcunj/commit/3597d1857443c1b96a2708805461443624c6ffc0
+
+新增各地运营商的 IPTV 地址： https://github.com/pennguru/zkcunj/commit/4587bbf75a43b13844c65624b9f814e228c6c315
+
+插件推荐： https://github.com/pennguru/zkcunj/commit/55e88070a97b7378bea38db9867b885367034998
+
+视频教程增加： https://github.com/pennguru/zkcunj/commit/96aafebbc7e23807fe631a9b621a0ffbae1fcccf
+
+咪咕源失效： https://github.com/pennguru/zkcunj/commit/94539c08c983e89dbceeb7d47a4f297075255712
+
+2026-06-22 更新各地运营商 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/af91f8e0755133ffd7b1d608b81ebd8dcd7c593d
+
+2026-06-22 更新台湾香港海外直播源： https://github.com/pennguru/zkcunj/commit/13ef274aadf48bddecb8f8a050d62a382b9a4343
+
+新增辽宁广电直播源： https://github.com/pennguru/zkcunj/commit/10c6a2cf76bb09a095504fba6b2d35761ab08b70
+
+新增江西广电直播源： https://github.com/pennguru/zkcunj/commit/3e5271ae95923efc11bf0d645b4f38f20af5913a
+
+新增湖北广电直播源： https://github.com/pennguru/zkcunj/commit/83d68b41ceebf4b6b121dedaed494ed7aa40cbc0
+
+新增中国广电 cctv + 卫视直播源： https://github.com/pennguru/zkcunj/commit/c740043b4a8af18c9a12f3088d24b019da940bac
+
+新增辽宁电信 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/5fc33e481ac6e6cb6ecefbec40e1f7527bf44fc3
+
+2026-06-22 更新台湾香港海外直播源： https://github.com/pennguru/zkcunj/commit/39a5729f118e80cc385e884e9ed0eb0640c1949d
+
+新增辽宁移动直播源： https://github.com/pennguru/zkcunj/commit/220de43b7521f5eaeca1a31ce20f513217233ff2
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/0e4f1cb23c3bc5c7865636c0ec0886bbbab7e619
+
+新增广东联通 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/cd4b00ec540dc7a96eb8142e497c98081c7af2ba
+
+新增四川广电 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/0d3a800e84f5faa8dfa5706a47c2156caf13d97e
+
+新增云南电信 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/978cf0cdc889e2284137af8e182adb1ac9b9ef41
+
+2026-06-22 更新国内电视台直播源： https://github.com/pennguru/zkcunj/commit/2bb4743bf9c36114a2d05322eeab6f98142f219a
+
+新增福建电信 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/a750eba99aba6afef592e5744a562f34bcda0673
+
+新增天途云 CCTV + 卫视： https://github.com/pennguru/zkcunj/commit/4740f666ed9a9b74a51235eddba1ffcb64534390
+
+新增腾讯云 CCTV + 卫视： https://github.com/pennguru/zkcunj/commit/812b22c2a9dcbb36e9d424fe29151aef4c60d018
+
+新增 CCTV 付费频道直播源： https://github.com/pennguru/zkcunj/commit/f3569c90d0bb946a7de1af7154039d3a23bc6151
+
+新增广播电台： https://github.com/pennguru/zkcunj/commit/c076a3b5019617c216f3aac12fcda7948da7a6a4
+
+2026-06-22 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/pennguru/zkcunj/commit/9c07eb45b222bd64d1ea002c8ef94ce30bab5f74
+
+2026-06-22 更新 台湾香港海外直播源： https://github.com/pennguru/zkcunj/commit/0bd6ed80ab0e7c2cc47cb6b8ed753a79e5d47680
+
+2026-06-22 更新 国内电视台直播源： https://github.com/pennguru/zkcunj/commit/b121ad38499642e4e4401a2f908130029e5f0e99
+
+国家直播源： https://github.com/pennguru/zkcunj/commit/bb83490b7093ea064e8cc04425bf95ca6b336d24
+
+直播源： https://github.com/pennguru/zkcunj/commit/20c6126b4ea4cf679b6aef695dc89b8d5c4dc11c
+
+影视剧场： https://github.com/pennguru/zkcunj/commit/2c1c4744c3948813ff12b13e5f405825339943b2
+
+台湾香港澳门： https://github.com/pennguru/zkcunj/commit/bd7110c6f91508786df026e0e04ab094dcc94e02
+
+国外电视台： https://github.com/pennguru/zkcunj/commit/3a74403b60a30eca513e73b6fb4e0a0c274ef8c0
+
+国内电视台： https://github.com/pennguru/zkcunj/commit/3779b06000766c0f99f28ad29b259511f3af2555
+
+更早期 2026-06-22 更新： https://github.com/pennguru/zkcunj/commit/7702e2d50c95a19b5ef8ce84eaf6c7cff976d2c9
+
+各地运营商 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/40799105414567b95d6fe3fdc8736d6e2c24083d
+
+全国可用直播源： https://github.com/pennguru/zkcunj/commit/01d06f3ee7843b295af1ad99fc1d76b5c2dd5ab5
+
+2026-06-22 更新： https://github.com/pennguru/zkcunj/commit/5488df94e1ffcc8938cefd8bfbde747eaf986f5d
+
+赞助者： https://github.com/pennguru/zkcunj/commit/bbfd418acabcb5be8c44cbf4e9d202db5640ee5a
+
+文章： https://github.com/pennguru/zkcunj/commit/2c44a82aaf202431c282ff1e023dcfd74de60329
+
+视频教程： https://github.com/pennguru/zkcunj/commit/fe04f408d63832b4bc736f84221cd23516dfea72
+
+插件： https://github.com/pennguru/zkcunj/commit/5176f0faecc005878fa4b3155c25f0c98d86217d
+
+工具： https://github.com/pennguru/zkcunj/commit/da531f3a04ad2a79710c0cbf9b4b9c08acbe1414
+
+URL： https://github.com/pennguru/zkcunj/commit/3575b188b433cba224c1887cf62348c70c68dbef
+
+目录： https://github.com/pennguru/zkcunj/commit/e285794c83c1fac7dd2631956925d85050afa3c9
+
+喀麦隆直播电视频道： https://github.com/pennguru/zkcunj/commit/dd14631872e149f35cac9c2b0b71b0aa06e6cf89
+
+阿富汗直播电视频道： https://github.com/pennguru/zkcunj/commit/42ece9b8a39ca7baa4d85e7eb61cfbe04644fc2b
+
+海地的直播频道： https://github.com/pennguru/zkcunj/commit/ccbd63249f7f6f7fad1bbde7ba0086599472fe44
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/pennguru/zkcunj/commit/7249a85c33b4c9da2e46a47643b7b7857a127da5
+
+厄瓜多尔直播频道： https://github.com/pennguru/zkcunj/commit/1d896f0e106981a46910ad344e6327f2e35dab62
+
+玻利维亚直播频道： https://github.com/pennguru/zkcunj/commit/48aee8d0d1da79822dee23eb42bbebeefe847f01
+
+萨尔瓦多直播频道： https://github.com/pennguru/zkcunj/commit/165d20e736f60bc022ecfe723a1a226dd6d7b214
+
+危地马拉直播频道： https://github.com/pennguru/zkcunj/commit/da7d74a3f47fb4c8ebcb2cb21562248df352051d
+
+洪都拉斯直播频道： https://github.com/pennguru/zkcunj/commit/ee8efa97bdd67df7cdf5e87fa8d833f5bd5e9dd6
+
+多米尼加共和国直播频道： https://github.com/pennguru/zkcunj/commit/f0340b73697108ccb33e5e2adedc3fcde6d45af7
+
+哥斯达黎加直播频道： https://github.com/pennguru/zkcunj/commit/3b14549e969595d448a10a91d18ad346d8a9ad71
+
+来自世界各地的个电视频道和个摄像机： https://github.com/pennguru/zkcunj/commit/bb4236fd09086f4a8620a3d67845a8b3cbf35df2
+
+免费数据库： https://github.com/pennguru/zkcunj/commit/58617bcd4ca2a6d911a1d4f2c6c36cd6faabdf2b
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/pennguru/zkcunj/commit/1a708bb5e69a883f3827ed4fde5b6c2f9b997e37
+
+超过个国家地区的个高清频道和： https://github.com/pennguru/zkcunj/commit/450eaf66218fe7d8dec54b76ecef1ba9ae373c01
+
+超过个直播电视频道影视节目： https://github.com/pennguru/zkcunj/commit/8950d8972287da6b9c7ba2b4e7f6ec55100006e5
+
+提供商列表： https://github.com/pennguru/zkcunj/commit/fc916a044af96e54f0a9766f34cc3fcf7fbd230b
+
+提供者： https://github.com/pennguru/zkcunj/commit/9a969eb2adc87b58685b5cb637fbaa2dd6def501
+
+客户端服务器媒体播放器： https://github.com/pennguru/zkcunj/commit/b3158e0809c51b65ca447a5ff8eee38a09955410
+
+支持播放列表文件： https://github.com/pennguru/zkcunj/commit/df0b083f2ab7b9432f6f8a5080244d96b1c633e5
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/pennguru/zkcunj/commit/d50a9632675e9c56f618b3d496ca2e8671b46ce4
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/pennguru/zkcunj/commit/aeb00c01d6d0ae682806ed825a4f2a4fd19fc4b6
+
+点 即可： https://github.com/pennguru/zkcunj/commit/e0ab7d5cfc4ba7ba5b2f4e7c9db95860c371d82f
+
+第三行不用管： https://github.com/pennguru/zkcunj/commit/e45f7f8ee31a6ef685bea447ff63e22f6c642453
+
+第二行输入上面给你的地址： https://github.com/pennguru/zkcunj/commit/81cd552e69387aa32a7bfe5f956b5f2617597fcd
+
+第一行随意输入一个名字： https://github.com/pennguru/zkcunj/commit/e99d41b8903c4d0b1b5df739a05fd34cdef44bee
+
+选择 远程播放列表文件： https://github.com/pennguru/zkcunj/commit/81a37678ea00d36cd30ab4f7c7c375a733175daf
+
+打开 点击 号： https://github.com/pennguru/zkcunj/commit/eee1d93d5afcea456113562ece8806ae86b7889d
+
+食用指南： https://github.com/pennguru/zkcunj/commit/78a71986094432efc1581513739be32fbf3a961d
+
+适用于 macOS 的现代媒体播放器： https://github.com/pennguru/zkcunj/commit/6e958d6364959aa539b32ec3ad795cd3d1234fbc
+
+直播电视和广播客户端插件： https://github.com/pennguru/zkcunj/commit/dafe9b91bdf17ddef8d30d6d6a78dca6d0ab6124
+
+具有库支持的免费跨平台媒体播放器： https://github.com/pennguru/zkcunj/commit/c5a682e2075cebd77691c8e0e31644a746b461e7
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/pennguru/zkcunj/commit/b5049939d239f7ec4b1dd29ad28666f71d00082c
+
+支持 IPTV 流的应用程序： https://github.com/pennguru/zkcunj/commit/bf02853c3554c1a5ace1e9070f8adae685167fd6
+
+工具： https://github.com/pennguru/zkcunj/commit/98388221a0bb162901f8c28f8987b3c6375c8132
+
+轮播华数求索爱奇艺 2026-06-22 更新： https://github.com/pennguru/zkcunj/commit/496421749a58b0e17a9d0f7d56936a6fd0e38fa5
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/pennguru/zkcunj/commit/2c0de20cc81878cf8142edebc3acb568c2bd8a6f
+
+台湾香港海外直播源 2026-06-22 更新： https://github.com/pennguru/zkcunj/commit/1cb31b3b6451ea2b69fd74496ba3029be0331f91
+
+各大卫视、上千个地方台： https://github.com/pennguru/zkcunj/commit/7826335e0bec44e20d9e0a9a9648510806c8ca8a
+
+国内电视台直播源 2026-06-22 更新： https://github.com/pennguru/zkcunj/commit/be1128e84f17ae24e482434e2f7698f544cc8b80
+
+卫视腾讯云： https://github.com/pennguru/zkcunj/commit/0f848b20aa5a07e0c0af5c52ed009f15f550c53c
+
+卫视平顶山学院教育网： https://github.com/pennguru/zkcunj/commit/51ae40b9d00e9e49fe62a2befcc1be0af9da6141
+
+卫视天途云： https://github.com/pennguru/zkcunj/commit/ada2452f8dc6e81cd1835173c9105f6d37d0a12b
+
+卫视地方台安徽农大： https://github.com/pennguru/zkcunj/commit/5784e5557f2e0177d3e4c436ee8c251c30770394
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/pennguru/zkcunj/commit/4cd34dcc2bc4afec0f9de72b79a522e3430e221e
+
+央视卫视广西移动直播源： https://github.com/pennguru/zkcunj/commit/27ee14c6ca2efc49a1d0f681d14124e2b67d4580
+
+付费频道直播源： https://github.com/pennguru/zkcunj/commit/3ff18f1917358d714acfec106fa43f84146769af
+
+国家直播源多个全部有效： https://github.com/pennguru/zkcunj/commit/6e4ea5e01527f979b323fc2988be90f3fdf9ebc7
+
+直播源全部有效： https://github.com/pennguru/zkcunj/commit/17e593058f7b0c78839c64284be022ed5f6d70cf
+
+全部有效： https://github.com/pennguru/zkcunj/commit/cbbe6383c353e19cf9e115c5e2b11c1e8a105beb
+
+直播源全部有效老电脑别用： https://github.com/pennguru/zkcunj/commit/336a08f60e31a4fbb40615f59b9e0d2f810cbb55
+
+影视剧场全部流畅： https://github.com/pennguru/zkcunj/commit/8bdadb35b614711a88aa62c38196dc2bf6e1fddc
+
+全部可用： https://github.com/pennguru/zkcunj/commit/328c2c49cde1d65245446fbe31407281cc3c416f
+
+我的播放源： https://github.com/pennguru/zkcunj/commit/acab3b8ace91de91e0a7b3e6bd9258e18b67a546
+
+其他直播源 不确定有效性： https://github.com/pennguru/zkcunj/commit/a805632a8c664a47a65932b677a8f9ab16349777
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/673704c9ca224bdd6298f3db75454714d55e8249
+
+新疆 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/01ad2cf4eaab4806f52f23b9ba3597c14b94c350
+
+内蒙古联通 udp 组播下载地址： https://github.com/pennguru/zkcunj/commit/d300916f4302343efea6082fc5e99c7eea83b3e3
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/2ba7521a8a8f2eed0e215e04f1314221d23da3df
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/05ab17b0b48f9d7d323b412e81ea4eab8565d51d
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/072acb330bfa72d24c74fc559285919769ec2ff9
+
+内蒙古 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/f58fff01abaf160d254b8795172411aa71d7efbe
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/0131decee7cb73f3718d39775031720579839dd5
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/159bc9b6f0b4bf085947fd04d2dea38338b4f440
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/460b9ff9835d44d1b2e70cee30fed10272b47efd
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9ba205c649f6d5eb9b1ecb7581de1db089d0413e
+
+黑龙江 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/5df360af3d2720c5ef02550da4e5fca0f7947be7
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9206aec148e4db5e5486c2c0358d3eceb0574884
+
+吉林 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/2d535493db33d4907b3c703be8f15a0d089a84a2
+
+辽宁移动直播源下载地址： https://github.com/pennguru/zkcunj/commit/83f783d03c58dcdc94cdbd66698d4033d6e09233
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/bc68c472f9112fa93e49f6ff240b74279fb0be74
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/ab9bf138de01c2dbcaef2c1079c42f7913623f5f
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/0fa558d76943cf46c1213d03bd25ba8e4ca2cdc6
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/dc95bcc49ff09411d9dfa8070a24bb4a7d8db839
+
+辽宁 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/808d91c4f70f1b8a8c08780f38d1ded750f8a1e3
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/85cdbdbbab0aa69a10414593e3813cb3e5d2596d
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/pennguru/zkcunj/commit/50823e2e6f094d48b0ff9f8d09500fff0083a65a
+
+浙江联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/636ea94095099cf18a2a64372bb78e7ad48dcd01
+
+浙江移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/4fd171943a6e0d4166f0b9f5acb632b2123b0a12
+
+浙江 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/8eb33d4249eb7319098c3a7cb89b6a8af42228de
+
+江西联通 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/da309a0f8e0cacb661018b9b15fa6734d8714ff2
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/2bdb7da6690f4d89f90e6b9a435ab391a494af34
+
+江西电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/4b8033c9e5fe708254e339dbde76a43c139ce212
+
+江西移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/775bc8ca4c17e42bb58ddadb23d1efed06a53f9b
+
+江西 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/33564211155f3368fd3dc06aed86c7224d860dd8
+
+江苏移动 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/ecc9891f0636b9b798bbdbedd3f424e3f9a633c5
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/0a6042fea76900d99503351eaaf0b69942307336
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/ad40cd5e0f5118b26153d8eef26565217526bcb6
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/234b2a3116bafbe52fcb0ccc28355b7739f667c1
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/9f4d38c8584914a7d783d0b6ca8af9b3438f17f7
+
+江苏电信 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/33608228e778b55ffb9699dfd26531b24fcf016a
+
+江苏 IPTV 直播源： https://github.com/pennguru/zkcunj/commit/b6a739008424c557af671045bf1d0f1559ace079
+
+安徽广电 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/f0237dfee5cb929e5a26980aff3c47d1c64235f0
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/c39f4d457f1f7765054cd9aea22763732a860d81
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/pennguru/zkcunj/commit/ab39970133a6938d9727caab121c73973dbd2b2e
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月22日20时26分05秒
+来源：https://github.com/pennguru/zkcunj/commit/484eb2dd6d8b11c691aede4d0a9edb8daed752f3
+
+来源：https://github.com/pennguru/zkcunj/commit/208aa3b9c8ef664849f96d8d78992cdea2921569
+
+来源：https://github.com/webicdevel/chjzzd/commit/2024c3d81353ceb6d614475a07846bbf4fbd910b
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月22日，20时26分05秒
