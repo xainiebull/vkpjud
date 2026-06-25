@@ -1,0 +1,592 @@
+盾安（DunAn）空调全国售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎(官网认证）
+盾安（DunAn）空调全国24小时各售后受理客服中心2026
+盾安（DunAn）空调各市区24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔(2)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+盾安（DunAn）空调全国24小时各售后受理客服中心2026
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务、盾安（DunAn）空调售后服务𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+盾安（DunAn）空调24小时售后服务热线上线（2026最新公告）
+盾安（DunAn）空调售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+盾安（DunAn）空调售后24小时客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+本公司主营盾安（DunAn）空调维修 →盾安（DunAn）空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，盾安（DunAn）空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、盾安（DunAn）空调售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+盾安（DunAn）空调24小时全国推出各售后受理客服中心(2026上线)
+盾安（DunAn）空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+盾安（DunAn）空调贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显盾安（DunAn）空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+盾安（DunAn）空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+盾安（DunAn）空调24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或  𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+盾安（DunAn）空调售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 盾安（DunAn）空调常见故障代码维修指南
+
+盾安（DunAn）空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， 盾安（DunAn）空调就能正常运行，为您营造舒适环境。 盾安（DunAn）空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+盾安（DunAn）空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修盾安（DunAn）空调(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+盾安（DunAn）空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月25日23时00分03秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+盾安（DunAn）空调贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显盾安（DunAn）空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/ef5e4c5706f06cdd219a2a1ff3a7961f19dfe146
+
+江苏电信 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/50ba7db9b2688c10cbdf6f531789203a9c5370df
+
+江苏 IPTV 直播源： https://github.com/javimiller/zweelj/commit/7d8e06164da52ba9dbf59a81a4fd21e3741bb921
+
+安徽广电 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/e00cbddd7602642274c8e897385ab62e5df1b946
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/b1142915ac5832b189ed74b59a1c1c422cf63205
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/007716d03a830bc82991685f2c056182bd97f13c
+
+湖北 IPTV 直播源： https://github.com/javimiller/zweelj/commit/91d9cc93087a76b66907fb0f247971cb391f5883
+
+湖南电信组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/6f9436df2dbd824a259c286dabac80705a240931
+
+湖南电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/a2b7dcb74470561390c22e829654f60a106cf0d8
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/a9430fa955aa3b92b22de9ff575fe64b7e83d4d8
+
+湖南联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/d1b27d9d72c0bd82704f9965668fae3ecee45954
+
+湖南移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/066a0e2d8ec5c03eb50bcda596c22f6572012c9c
+
+湖南 IPTV 直播源： https://github.com/javimiller/zweelj/commit/7ef2d89710722d7fb01f67e6177d13532256dc8d
+
+重庆移动组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/73369b927be3b4bf4dccfb4b0f724579cef190a8
+
+重庆联通组播直播源下载地址： https://github.com/javimiller/zweelj/commit/56803d27a57d7db8f2231a2406b713b9dab0430d
+
+重庆联通直播源下载地址： https://github.com/ravamorang/pytgvc/commit/e138485101ff893770683260266c65a65722e2d5
+
+重庆电信组播直播源下载地址： https://github.com/javimiller/zweelj/commit/d41e07972c3212ddfccdb4f1adeed1d77917c4a1
+
+重庆电信直播源下载地址： https://github.com/ravamorang/pytgvc/commit/b42837d37fbecaa7e5ff5ac813652d1d74ea5cdc
+
+重庆 IPTV 直播源： https://github.com/javimiller/zweelj/commit/2585c57742ef4e16c7d03fda65ba52b63e2bd4cb
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/ed31fdb14af0451ae9c2dcbfe7cc6e3245959b7c
+
+四川电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/1fc7830e2c25244f4eeda5fa70c9e0c1a0a1e3dc
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/083f5919388cde3147095eda79b50cb513dae102
+
+四川广电 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/c93e2bf5187a0e9617eaa9ae0f0e00d4ad6993d0
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/8bc802744902dc2d5785d0cedd7af5db9aa14f11
+
+四川联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/b244c74e810504e0378b2bc7c5c11011331cbe81
+
+四川 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/44a6fab87aee7f1ad0310e0c8be147da83a3fcae
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/c84b20373e3c5ca09b801f05dbea80d65ceb735c
+
+云南移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/255cbb9903895a06b04f801a0d0852c85e5d4eb3
+
+云南 IPTV 直播源： https://github.com/javimiller/zweelj/commit/465927722862c5608a8fa3ce773bd06cface0a68
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/38a21c298b4cda48cac3134af179f078d6914995
+
+贵州移动 IPTV 直播源： https://github.com/javimiller/zweelj/commit/7a250f0c982d93992be6d150081e8c1604cc2c24
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/47e61f90cf8541fbc6f75c4a55bf0b96f190715e
+
+贵州联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/991f39e4e64980062b702b3456d1541c18facc83
+
+贵州 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/8604da02a0ea2d0e4c8fdbc1adf9d0fe438724a2
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/f745d4bfe4f1f9eb1b7367f5b99f8ce240644a42
+
+福建联通 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/42e337d0428e98fb5aa79c8609b7ef22902a6d90
+
+福建移动 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/a425ccaaeca5b0423d35802a5f1e729fff28bc10
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/4541c306c1f39c10d70e9ecb5737ffee2b1500ca
+
+福建电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/dfd57192aae03006c93301f6588df228c97ad872
+
+福建 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/49a911103cc76f4efdb100565d3573e8368cb5cc
+
+安徽移动 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/981a8d1d3d22a84abc0775f210e09bb483436968
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/83488814b66a684513057c1fdba5cb18c5ce37e4
+
+安徽电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/504f302e902277cf2ddad8281b21e62bbd50fae7
+
+安徽联通 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/3f0c1eb41e9261400fe99a584b7aedd27a5f1276
+
+安徽 IPTV 直播源： https://github.com/javimiller/zweelj/commit/f6e3463bf6d7a6699f5a0a51767b5d079035cf9d
+
+陕西地方台直播源下载地址： https://github.com/ravamorang/pytgvc/commit/46d70d25050b984c0716de132a7b60606fdb95f8
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/1f86831d5d69945c9cfbe461823eb3e3a0a325c8
+
+陕西电信 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/322df17c833876350678c06483361ee52ae0ccb9
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/59eb0205c958a3b40ea7f1a87f2fcdf4dd6c9b3c
+
+陕西移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/f7cc658fc69ea7be44b1ca3829d0ff1c6a282372
+
+陕西 IPTV 直播源： https://github.com/javimiller/zweelj/commit/5f754e82f3858ab98338cb5cb12111e39a4f2e39
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/f9e31af9e8fc1eca4c08ecb8e4748df4c8ba3726
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/d2f86b4dbc37080751fe4e14206ab5de68801fe0
+
+甘肃 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/1fb699d29596023042db67765e54ad7d951f6174
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/2fc57c41e1b3a06667d8c76f584130fe3149409a
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/f97d33fbd87457f379b907c37ee32bc57856233a
+
+山西联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/becf5697fbb1e04f0f3b31c4e25cbb3b847316c7
+
+山西 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/9a63d69cd8685cd7d92435f5ff7ede2a312b401c
+
+天津电信组播直播源下载地址： https://github.com/javimiller/zweelj/commit/e425fd8547843c189b7a2ef48b0c9305d4008144
+
+天津联通组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/ff09b0776ad8adb5128d01ed5f5add8c92d5d7f2
+
+天津 IPTV 直播源： https://github.com/javimiller/zweelj/commit/102ff00bac83a1904d0167d4e917600b919f0c21
+
+上海移动直播源下载地址： https://github.com/ravamorang/pytgvc/commit/2c146a8d89b71397822b21f8ce72a752b48e8fc0
+
+上海联通组播直播源下载地址： https://github.com/javimiller/zweelj/commit/24adb6c038fcf6dd40e374bc46e6c9822483ae86
+
+上海联通直播源下载地址： https://github.com/ravamorang/pytgvc/commit/96612a2be9b38120bb5226362b3b519273daa02c
+
+上海电信组播直播源下载地址： https://github.com/javimiller/zweelj/commit/d3985fa2b328066e2a2d34a49960d639f7ce2cec
+
+上海电信直播源下载地址： https://github.com/ravamorang/pytgvc/commit/daadb771d24acd15af64a87f998a17bd299edb1f
+
+上海 IPTV 直播源： https://github.com/javimiller/zweelj/commit/87533bab53f578e006ba59888beca002d274d009
+
+北京移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/b47bbe5865f424b3c35c1a9850434a601aa5c947
+
+北京移动组播直播源下载地址： https://github.com/javimiller/zweelj/commit/c1bc56c7b007ed6b880c77bf3ec18c4cfbb8182b
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/37769fe2b8f45464414c6ec835950a701d348a1e
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/08d7cde84657ca2bceb752a3ab6c710afb2db5d2
+
+北京联通 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/708e514e4aad8b285d93833ae68e98f1a8987a56
+
+北京 IPTV 直播源： https://github.com/javimiller/zweelj/commit/53f7d25ce9c8e45c56c9eb7f9920399ea18c3ab7
+
+部分地区的移动可全网通用： https://github.com/ravamorang/pytgvc/commit/bfeddcbb0d5a4cb4334098894475717a7a66c489
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/javimiller/zweelj/commit/293945670cf4536a7287d8e996a51ab9d39af92f
+
+广播电台下载地址： https://github.com/ravamorang/pytgvc/commit/d7ab4f9afc2ec6168560cabbe08e624993357fc4
+
+国内景区直播源下载地址： https://github.com/javimiller/zweelj/commit/a6911b7e26c74f9e11e3cce79baba699b7cee454
+
+轮播华数黑莓下载地址： https://github.com/ravamorang/pytgvc/commit/be892e0a2846b9b68a19e443cf32629cc7ec1f21
+
+台湾香港澳门电视台直播源下载地址： https://github.com/javimiller/zweelj/commit/0f766c16886d1e8c64e130a6b18daf79f1dad000
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/ravamorang/pytgvc/commit/84fbf036e1d63d44968bc0ab35848e4e900c24af
+
+国外电视台直播源下载地址： https://github.com/javimiller/zweelj/commit/3e67255d00c4fe54423af451676525b8476488a4
+
+卫视地方台安徽农大下载地址： https://github.com/ravamorang/pytgvc/commit/5b0e76a1d902fbd872cb8d3443b79e9eff1f369c
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/javimiller/zweelj/commit/b4a01c971adf5b87e097a23d669093625f114233
+
+卫视上海源下载地址： https://github.com/ravamorang/pytgvc/commit/5265ea2341124d5c79297fe999dc4b441094a316
+
+卫视重庆广电 下载地址： https://github.com/javimiller/zweelj/commit/a6a16a9c48f493eb33b1b16cda7b72782739fe28
+
+卫视百视 TV 下载地址： https://github.com/ravamorang/pytgvc/commit/e2436b0eed0f4bc85215b5552f80706e3f02b366
+
+移动 IPv6 直播源下载地址： https://github.com/javimiller/zweelj/commit/fbca66dae128571423a9ef729050cd9e44b9a33b
+
+国内电视台 IPv6 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/e98bcd4b28fe654a5ed7b58fea5c241ad3d3129f
+
+各大卫视、上千个地方台： https://github.com/javimiller/zweelj/commit/e05f90e7508d82c4c06d4bc1e9b2f4193acb7087
+
+国内电视台直播源下载地址： https://github.com/ravamorang/pytgvc/commit/387b98a3728f4f8c945ebbee485302c295295a9a
+
+全国可用直播源： https://github.com/javimiller/zweelj/commit/f2a0fce16eb01073cb43aec4c12b52936b138f08
+
+包括完整内容所有已知频道： https://github.com/ravamorang/pytgvc/commit/4a96e733c8ab6213de2d146521a616a0d2c9d06a
+
+除成人内容以外的已知频道： https://github.com/javimiller/zweelj/commit/7e296729e08e76da05ea9a3571b2010265b72f49
+
+收集来自世界各地公开可用的 IPTV： https://github.com/ravamorang/pytgvc/commit/97232d105b04ac6209793629ce6ae54621921c9e
+
+稳定地址： https://github.com/javimiller/zweelj/commit/c771f829d1bb7b53cd96edc06204678319f525c6
+
+2026-06-25 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/ravamorang/pytgvc/commit/832be03a73e8a9281231e61b275e29bf3ff5c2fd
+
+2026-06-25 更新 IPTV 工具： https://github.com/javimiller/zweelj/commit/22704dd4f804fbba62bcf8342910793c0c3ecfe6
+
+2026-06-25 更新世界各地 IPTV 频道： https://github.com/ravamorang/pytgvc/commit/8aaaa14d895d4c861ef65eb693832e842314ecc6
+
+2026-06-25 更新全国可用直播源： https://github.com/javimiller/zweelj/commit/82c3d5a7f4b130da83ca59e92e2acb9477033b0a
+
+新增各地运营商的 IPTV 地址： https://github.com/ravamorang/pytgvc/commit/2508051944e05657fc0ca6ecb5fcdbf1cbfd2104
+
+插件推荐： https://github.com/javimiller/zweelj/commit/56eca79eac4036eb8f0ad79ebaf89bdbc7540c4e
+
+视频教程增加： https://github.com/ravamorang/pytgvc/commit/99583aa7193bdbcd6ed11cdc369b9e40765b262a
+
+咪咕源失效： https://github.com/javimiller/zweelj/commit/fede5cc10b91fda456f507aeb677ec793c7c34b5
+
+2026-06-25 更新各地运营商 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/70d6554e8ab02f5b5c735284c092983dcc8a502f
+
+2026-06-25 更新台湾香港海外直播源： https://github.com/javimiller/zweelj/commit/9ce3b56c712e9af72ab1d8ee6c922d2cb10bf7b0
+
+新增辽宁广电直播源： https://github.com/ravamorang/pytgvc/commit/50d4940130bd632244f4aa204d3e8f3b56deafd5
+
+新增江西广电直播源： https://github.com/javimiller/zweelj/commit/d0442d855c8f88f595663eebda63ab16158c998c
+
+新增湖北广电直播源： https://github.com/ravamorang/pytgvc/commit/f6ecf08a05b3c740a6a4396244e2bdb28dbef4b2
+
+新增中国广电 cctv + 卫视直播源： https://github.com/javimiller/zweelj/commit/ac261d2e0eb06afc24db80505977fef0294805b9
+
+新增辽宁电信 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/d823b188fcf2b9738d2be5e45ddd79790274dd01
+
+2026-06-25 更新台湾香港海外直播源： https://github.com/javimiller/zweelj/commit/caa61e4920a5d2b6f3411510ffdb1a832df5b598
+
+新增辽宁移动直播源： https://github.com/ravamorang/pytgvc/commit/f9daf62c42e5bb333cffee1a1695dbc4e0a32bd4
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/javimiller/zweelj/commit/8614ce6e58a0afaa702f692beac025cb2fe32dd2
+
+新增广东联通 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/a529a15fb64c3c4c42384e4ef494fe1bbde8c0ec
+
+新增四川广电 IPTV 直播源： https://github.com/javimiller/zweelj/commit/e452665d50b373121769a11ef0d3d1251462be0c
+
+新增云南电信 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/94fc666a39859d8c68731cd73a838156126b72ab
+
+2026-06-25 更新国内电视台直播源： https://github.com/javimiller/zweelj/commit/41438088977b16a271ab69ec80fd961e53e7facb
+
+新增福建电信 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/fc4233a425d43acbc155cce243a9d0b245dd5ef9
+
+新增天途云 CCTV + 卫视： https://github.com/javimiller/zweelj/commit/7a4c75d80cbd2359261242c7f82c721481e97013
+
+新增腾讯云 CCTV + 卫视： https://github.com/ravamorang/pytgvc/commit/3dd21f1fc963059734bd786eaa0cf888c7634688
+
+新增 CCTV 付费频道直播源： https://github.com/javimiller/zweelj/commit/71fd2ccacf1563cd904c4594f774691d1a446e96
+
+新增广播电台： https://github.com/ravamorang/pytgvc/commit/c3bd4acc963418716a8cd41c603f05e20aedf2d2
+
+2026-06-25 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/javimiller/zweelj/commit/d390bf0bf46be05cd537434419e971efef3867b2
+
+2026-06-25 更新 台湾香港海外直播源： https://github.com/ravamorang/pytgvc/commit/828ed5422fef026d59b7f49eb11e0ff537f306c9
+
+2026-06-25 更新 国内电视台直播源： https://github.com/javimiller/zweelj/commit/b3bab89f32e6ecea9bed081db3b4e2a943ad6e27
+
+国家直播源： https://github.com/ravamorang/pytgvc/commit/9f62677a1acafce0bc8ce502192271bade2bee8b
+
+直播源： https://github.com/javimiller/zweelj/commit/fc3cf9134e0c7d9ca78296f799ce48a7c6fbd223
+
+影视剧场： https://github.com/ravamorang/pytgvc/commit/55872a3802d999e363f7ef410ba6406499e25c25
+
+台湾香港澳门： https://github.com/javimiller/zweelj/commit/e19038c42554d40e326fddf2da6397682fad2988
+
+国外电视台： https://github.com/ravamorang/pytgvc/commit/f6fd25640c611381f9bae96ecb8c88e0ea74d14d
+
+国内电视台： https://github.com/javimiller/zweelj/commit/49756d9880bcfb910f57a2cd0029ab56ace626c8
+
+更早期 2026-06-25 更新： https://github.com/ravamorang/pytgvc/commit/fa51b7c4406ac005e6693dd46a90cb186a20a52a
+
+各地运营商 IPTV 直播源： https://github.com/javimiller/zweelj/commit/db0d1c6cb95d0b75e85c2c295266150271a09518
+
+全国可用直播源： https://github.com/ravamorang/pytgvc/commit/91b23a876980389cdbf5b5f00038e43c6c24cc9a
+
+2026-06-25 更新： https://github.com/javimiller/zweelj/commit/99e6991f9bee568484d67d5fd95fc472d283cf04
+
+赞助者： https://github.com/ravamorang/pytgvc/commit/72aa387f5d5946aa825c641c7083f29e75f575fc
+
+文章： https://github.com/javimiller/zweelj/commit/23a4a1336e978785f390e06a9a7691a171d31e39
+
+视频教程： https://github.com/ravamorang/pytgvc/commit/9c488470ebdcc026a1d5ffe3122f2007b0b3c959
+
+插件： https://github.com/javimiller/zweelj/commit/9ce2ed885ff60f0e8477721c5459aeb4e673cc94
+
+工具： https://github.com/ravamorang/pytgvc/commit/0d57d17c14376241c8c3781baf0c24c3b0a6cbc2
+
+URL： https://github.com/javimiller/zweelj/commit/961c089535477ef45456a904d65f6abe965d0cf9
+
+目录： https://github.com/ravamorang/pytgvc/commit/bee141767e1035563ea230d50546ef02fd818272
+
+喀麦隆直播电视频道： https://github.com/javimiller/zweelj/commit/0021a1ddbd77f88405683421e3e54b710c2189f0
+
+阿富汗直播电视频道： https://github.com/ravamorang/pytgvc/commit/91bf59ab80e5af7dbdf284021bf1ee6e2bb69cd3
+
+海地的直播频道： https://github.com/javimiller/zweelj/commit/5b9e1f7d0ac01501a7451c6c52775e3da2c8c699
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/ravamorang/pytgvc/commit/efde7bb7c72d00a84425075ae7a184c8036fcb6c
+
+厄瓜多尔直播频道： https://github.com/javimiller/zweelj/commit/cc8605be82c5e304204a4d4ec067dbb6527fb63b
+
+玻利维亚直播频道： https://github.com/ravamorang/pytgvc/commit/ad42df9753378da979375c508ececfec1e33b52d
+
+萨尔瓦多直播频道： https://github.com/javimiller/zweelj/commit/a3ef0614b2fc8700de6e0ce53ab81c234ea917ca
+
+危地马拉直播频道： https://github.com/ravamorang/pytgvc/commit/964deaec7b5301893990f1c10d308cd5aab2333d
+
+洪都拉斯直播频道： https://github.com/javimiller/zweelj/commit/75b0e01459206f2e09fdec4125240ec4d6581f40
+
+多米尼加共和国直播频道： https://github.com/ravamorang/pytgvc/commit/2bb09563ebd220b50628eb9362afbd26448b215e
+
+哥斯达黎加直播频道： https://github.com/javimiller/zweelj/commit/d4a89427da78bbc37dcf2a5385a682192456b38e
+
+来自世界各地的个电视频道和个摄像机： https://github.com/ravamorang/pytgvc/commit/fde2d12f99f79a65c26c6e962fa346b46ee4dd8c
+
+免费数据库： https://github.com/javimiller/zweelj/commit/d3568ba0932ba9c86d933ab72e6289321c47e465
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/ravamorang/pytgvc/commit/98b4c156b2e1e97d26ec094095ab4db7440c01e2
+
+超过个国家地区的个高清频道和： https://github.com/javimiller/zweelj/commit/cd66d0a5b3718c1a21be0256c0a1d6587c978fab
+
+超过个直播电视频道影视节目： https://github.com/ravamorang/pytgvc/commit/b2e2647b7eaa54378fc800a035317f5cededca35
+
+提供商列表： https://github.com/javimiller/zweelj/commit/fefa4ef11476da59b88614e91281c35ec9c233f4
+
+提供者： https://github.com/ravamorang/pytgvc/commit/64d11cdb452bfb9d294109d3b6bd1e7f3898de78
+
+客户端服务器媒体播放器： https://github.com/javimiller/zweelj/commit/38a1085594720d0e5cd55a925e65a5f7e6b55da0
+
+支持播放列表文件： https://github.com/ravamorang/pytgvc/commit/010d9c594c6c75b99b09305adb0913a4d996510c
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/javimiller/zweelj/commit/095d5588ba84db616ffe5215f0a12a5cbc2f7cbf
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/ravamorang/pytgvc/commit/aad7445c415b6a1e3156821ded57bd6a09b05408
+
+点 即可： https://github.com/javimiller/zweelj/commit/ee4112e9f64b6da94251c3868d264b9f18be1a48
+
+第三行不用管： https://github.com/ravamorang/pytgvc/commit/57073c1a6e31a900d1615bb5d417c1a5670ead33
+
+第二行输入上面给你的地址： https://github.com/javimiller/zweelj/commit/170b75831350780e5676d952e9677b33fbef7fee
+
+第一行随意输入一个名字： https://github.com/ravamorang/pytgvc/commit/3af47b6fc5615dc753dd7e789453a1fedfe7c603
+
+选择 远程播放列表文件： https://github.com/javimiller/zweelj/commit/b41be7f0bbae90027967fd8a2c3757dd40618fe1
+
+打开 点击 号： https://github.com/ravamorang/pytgvc/commit/5ffe006a0567abbf02f45d2ed1924cc4e2234122
+
+食用指南： https://github.com/javimiller/zweelj/commit/a74dbe70c84bf30343cfe7a8c7d7aa4554359b94
+
+适用于 macOS 的现代媒体播放器： https://github.com/ravamorang/pytgvc/commit/8a3f049673a880e7718738149b29b89e2e881acb
+
+直播电视和广播客户端插件： https://github.com/javimiller/zweelj/commit/00d91595b334d54665a157b7d255c564231428b2
+
+具有库支持的免费跨平台媒体播放器： https://github.com/ravamorang/pytgvc/commit/e45485bed2549388ace8c1d3bb8824aa92a8f972
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/javimiller/zweelj/commit/1f1ed55bffc0a5e3876fc460263a4c17dcca4cd9
+
+支持 IPTV 流的应用程序： https://github.com/ravamorang/pytgvc/commit/e71f63485771160e7df8ba32b6202453977b2537
+
+工具： https://github.com/javimiller/zweelj/commit/f42e7fe05e7edc5caad28ca99c9a4aeaa2f31a05
+
+轮播华数求索爱奇艺 2026-06-25 更新： https://github.com/ravamorang/pytgvc/commit/24b368450c9743705dfdac481e657328e750a291
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/javimiller/zweelj/commit/99f86823ba237939137632a06370fb1c5f39cc1c
+
+台湾香港海外直播源 2026-06-25 更新： https://github.com/ravamorang/pytgvc/commit/b331cac2dd9bd1718ab05aceb10d4727d900e3be
+
+各大卫视、上千个地方台： https://github.com/javimiller/zweelj/commit/f8464b37eb4e2185abffcb5df8e3d0a0de3492dc
+
+国内电视台直播源 2026-06-25 更新： https://github.com/ravamorang/pytgvc/commit/9e324fb98d92f8cfdeae52137e74da22976395b2
+
+卫视腾讯云： https://github.com/javimiller/zweelj/commit/9a112a4dd3079e9463c7799461629c2b46f48577
+
+卫视平顶山学院教育网： https://github.com/ravamorang/pytgvc/commit/e2e8c7d3c3d05d6e13504a638d8ce17c1ddfdcaf
+
+卫视天途云： https://github.com/javimiller/zweelj/commit/b185b6130d3482d6af54ed0ebdc5d15204288af1
+
+卫视地方台安徽农大： https://github.com/ravamorang/pytgvc/commit/63a6ae6a9bc2a1b467ddab052000e21d68700303
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/javimiller/zweelj/commit/f96b9aa6b6fad6abe71b596adbd640baab59041b
+
+央视卫视广西移动直播源： https://github.com/ravamorang/pytgvc/commit/6418d10735e2321a7b1f33b35ad1c9ec41e230d1
+
+付费频道直播源： https://github.com/javimiller/zweelj/commit/d8612e544857ec07e3ac4124f8373c3317581405
+
+国家直播源多个全部有效： https://github.com/ravamorang/pytgvc/commit/c0c19f76ed0d98db84abd81935b6d38864806375
+
+直播源全部有效： https://github.com/javimiller/zweelj/commit/2241b8ed93c7edd037c45764a913b6445a9f96c2
+
+全部有效： https://github.com/ravamorang/pytgvc/commit/0e4c3a19491136b4afa7eb9415ad93cdcefb70e9
+
+直播源全部有效老电脑别用： https://github.com/javimiller/zweelj/commit/2638d591fe36f2ba63c72d99e246734547c5f078
+
+影视剧场全部流畅： https://github.com/ravamorang/pytgvc/commit/589e41ce9ed1267024939ac657b2ba296daed232
+
+全部可用： https://github.com/javimiller/zweelj/commit/b76b051dab8208df6418e756ef3d35b6ba94dc47
+
+我的播放源： https://github.com/ravamorang/pytgvc/commit/ede5f14bf7ac85f8666b313f7a28db3ca7081d75
+
+其他直播源 不确定有效性： https://github.com/javimiller/zweelj/commit/5a70963e7d938e3e959da169e1b617fa5aefea49
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/f22903f3b148438e4ce12efdc545dd823e5a2fde
+
+新疆 IPTV 直播源： https://github.com/javimiller/zweelj/commit/6053c4de488e0f12a43c5cecd8844dffe7ed4fe6
+
+内蒙古联通 udp 组播下载地址： https://github.com/ravamorang/pytgvc/commit/78a7621552beb7f9a7c64b2f369af5c2158ab3f4
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/9a544ad72bd0c09b0edbdc7c0db499e9082521d8
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/20e0916f8517357dc8ccbc36f7ca72434e336c2a
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/cab8ae84a696b80014de35bed47b849b35b3896e
+
+内蒙古 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/d9f4e0c2e0782f80fdc31240194288f13fb40c90
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/9e82666c0a8b9d9cca0275f9c8549be4ab4e36fb
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/37cd3054be927cb2966d35870cdfab3c54cd7c6d
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/0311b1004d305e794f6fdd87317e1658500284d0
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/1b67fb683f2cde9baa6e7c99cf224de1470d68f3
+
+黑龙江 IPTV 直播源： https://github.com/javimiller/zweelj/commit/6cb4ec83e986a530da2c1d9b747b35b0b3e0a66b
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/2d57323ca828d3eea275c986141b477e474129ce
+
+吉林 IPTV 直播源： https://github.com/javimiller/zweelj/commit/fcfbf2de29fea3526277b3711776068442057a21
+
+辽宁移动直播源下载地址： https://github.com/ravamorang/pytgvc/commit/71a8013207b649723154f4be5d821596abb165f2
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/30a6de552d2cc5a1fe718a7bd761797f48f42871
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/48ca424b2a125ba08e20150cb24aa5bad26f60d3
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/e7c174bcf8a840454153688ddb62ff5791885fd8
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/de3963b47b820160c4c7e302fa7ca444610bc3eb
+
+辽宁 IPTV 直播源： https://github.com/javimiller/zweelj/commit/7a7e0c1fe20834c55051e36a5a40ce73794ae9a9
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/ravamorang/pytgvc/commit/866a25c04885bb30f5953076a209a37ec7e64b5c
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/javimiller/zweelj/commit/ccc0777da0fb08ef22a39d79a4aa803ab0604bcf
+
+浙江联通 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/974a70c9f8bda9cc809ceab6d3e26ee144a7eed5
+
+浙江移动 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/7864f79c745f9c7069a1531f769b695dea6472d6
+
+浙江 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/ee4a341ec07992043550122e4b7dfbf61f56c1b7
+
+江西联通 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/906ba87b020548e7ac356ed637cded116ef8a7c8
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/e789f6b9b260de76f8c8cfec89bed2d35e0c10d5
+
+江西电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/83be35797fbe6bb18f30199ac72c81411fb80c2e
+
+江西移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/149fc1b8aa14cd6a69f0b74a62a5e91a25854f55
+
+江西 IPTV 直播源： https://github.com/javimiller/zweelj/commit/d01415150e819c731a863b660af9595b73af4ff7
+
+江苏移动 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/92f32b1a9a2bd7e10cd96f131e5a35585cb5ade3
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/25b1de59f973e481af7d9bbb3400a4e2160949e6
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/6b74d44cf9a5b96aa049c32cc1ecefa6e57961eb
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/2881bc7afe34422934d66a5705a9b4daf238753d
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/67a8834dd3fe5f5f4b30c556966351b85c1b9671
+
+江苏电信 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/6b09ff7bcb17f8fd17347d7a8cde18484cdcae04
+
+江苏 IPTV 直播源： https://github.com/ravamorang/pytgvc/commit/4ed94482c3f52e21ba015a22949fcfaacbedcff4
+
+安徽广电 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/10294ed240de62dd34b247f4353729441cedb3f6
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/ravamorang/pytgvc/commit/8ee5624734518636c8c6160e84fb1d4bef28899f
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/javimiller/zweelj/commit/e12ff4e2619be9faf0a23b45cbd97dcb2d1b5b92
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月25日23时00分03秒
+来源：https://github.com/ravamorang/pytgvc/commit/8701e7ee44748b7564f90b68f38e732d628a3941
+
+来源：https://github.com/javimiller/zweelj/commit/5c5d39e938d34570d56aba3ca7ebd796ad23879a
+
+来源：https://github.com/ravamorang/pytgvc/commit/86ba0eb7f1b125e6d52670794915efa87fdbe7ce
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月25日，23时00分03秒
